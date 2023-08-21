@@ -8,3 +8,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
 ### você pode entrar em contato comigo 📫
 
 🔴 juliana.braholka@escola.pr.gov.br
+
+![descrição do GIF](link GIF do Tenor)
