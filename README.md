@@ -9,4 +9,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
 
 🔴 juliana.braholka@escola.pr.gov.br
 
-![descrição do GIF](link GIF do Tenor)
+
+![Cute Rabbit Sticker](https://media.tenor.com/eC-GMmFYTfIAAAAi/cute-rabbit.gif)
